@@ -1,2 +1,3 @@
 # SQL-ND
-[2.pdf](https://github.com/user-attachments/files/17879601/2.pdf)
+![2_page-0001](https://github.com/user-attachments/assets/02c8ca3f-7d4d-4e11-89b3-7a8152c29268)
+
